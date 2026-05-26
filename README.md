@@ -39,7 +39,6 @@
 
 - **Telegram:** @Afpcosa (предпочитаемый способ)
 - **Email:** ivannosovec11@gmail.com
-- **GitHub:** вы здесь 😊
 
 ---
 
